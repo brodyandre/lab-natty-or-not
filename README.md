@@ -4,7 +4,7 @@
 
 > E nóis galera! Veja isto com atenção!!! 👀
 
-Fala galera, Luiz André estudante aqui na DIO! Baseado na hype _"Natty or Not"_ do fisiculturismo, este projeto te convida a conhecer o mundo das IAs Generativas, permitindo que  você possa desfrutat do potencial dessas tendências tecnológicas incríveis!
+Fala galera, Luiz André estudante aqui na DIO! Baseado na hype _"Natty or Not"_ do fisiculturismo, este projeto te convida a conhecer o mundo das IAs Generativas, permitindo que  você possa desfrutar do potencial dessas tendências tecnológicas incríveis!
 
 
 
